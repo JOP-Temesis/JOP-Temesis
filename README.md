@@ -1,0 +1,2 @@
+- Accessibility consultant at Temesis.com
+- Here to communicate about accessibility
